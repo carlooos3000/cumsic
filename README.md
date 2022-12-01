@@ -1,2 +1,2 @@
 # cumsic
-Quieres saber mas de música? métetelo
+Quieres saber de mis gustos músicales?
